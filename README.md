@@ -1,0 +1,1 @@
+Here you can find some samples of my writing in English and Spanish (my mother tongue). You will find my BA graduation paper titled "Institutions and Ethnic Conflict", as well as my final assignments (in Spanish) for the courses of Applied Economics, Big Data (co-authored with Santiago Rolón and Santiago Papasidero), and Economic Growth.
